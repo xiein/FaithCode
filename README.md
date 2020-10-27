@@ -1,0 +1,2 @@
+# FaithCode
+随笔
